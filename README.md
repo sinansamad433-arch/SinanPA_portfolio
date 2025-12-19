@@ -1,1 +1,3 @@
-# SinanPA_portfolio
+# Sinan P A
+## Calicut,Kerala
+### Data Analyst
